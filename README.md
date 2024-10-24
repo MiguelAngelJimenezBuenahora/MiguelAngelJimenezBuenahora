@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **programming**
 
-- 💬 Ask me about **ETF's, Cryptocurrence and anywhere**
+- 💬 Ask me about **ETF's, programming and graphic design**
 
 - 📫 How to reach me **mangelbuenahora@gmail.com**
 
